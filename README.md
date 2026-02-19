@@ -1,7 +1,4 @@
 # Hello, I'm Jheyrus 
-<img src="https://tenor.com/view/amor-gif-9941090423568182263.gif" width="8%" height="=8%"/>
-
-
 
 ## About me: ⚡
 
